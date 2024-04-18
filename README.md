@@ -1,0 +1,1 @@
+böyle işlerin sonu yok
